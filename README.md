@@ -1,0 +1,1 @@
+# Tradutor-HQ-Auto
